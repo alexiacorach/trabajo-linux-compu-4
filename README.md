@@ -1,1 +1,2 @@
-Participantes: Alexia Corach, Axel Puma, Valentin Dauo
+Participantes: Alexia Corach, Axel Puma, Valentin Dauo Bossi
+GRUPO BOSSI
